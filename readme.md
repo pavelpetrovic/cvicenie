@@ -12,8 +12,8 @@ kolko kamenov mnisi prekladaju...
 
 Nas tim tvoria clenovia:
 
-1. Janko Hrasko
-2.
+1. Vila Amalka
+2. Janko Hrasko
 3.
 4.
 
